@@ -1,9 +1,10 @@
 ## ABOUT ME<br>
 Wsp, my alias is kazame<br>
 Im an ambivert<br>
+Im also not ready for another realitionship<br>
+
 I like competitive, horror (Kinda), and rythm games<br>
-I listen to genre Electronic, Shoegaze, Indieand my fav artist are Billie calvinn, whatsaheart, Rebzyxx, horrormovies, and femtanyl<br>
-Im not ready for another realitionship
+I listen to genre Electronic, Shoegaze, Indie and my fav artist are Billie calvinn, whatsaheart, Rebzyxx, horrormovies, and femtanyl<br>
 
 ## SOCIALS<br>
 Discord: kazamees<br>
