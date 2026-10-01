@@ -11,5 +11,5 @@ Discord: kazamees<br>
 Spotify: [link](https://open.spotify.com/user/31hq6m5tbtllvivhewcoftnjomzq?si=509659fda1244903)<br>
 Roblox: [link](https://www.roblox.com/users/5339417528/profile)<br>
 Osu!: [link](https://osu.ppy.sh/users/39077514)<br>
-Tiktok: [link](https://discord.com/channels/1402616946280763492/1402616946817630360/1553415670937555047)<br>
+Tiktok: [link](https://www.tiktok.com/@kazamees?_r=1&_t=ZS-9A3bqaXPdbw)<br>
 Steam: [link](https://steamcommunity.com/profiles/76561198746479683/)<br>
